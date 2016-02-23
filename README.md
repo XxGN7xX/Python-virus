@@ -1,0 +1,2 @@
+# Python-virus
+DON'T RUN THIS IT'S JUST A PRANK BRO.
